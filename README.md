@@ -1,6 +1,6 @@
 ### Hey you're looking my profile now 🤔😄
 
-- 💻 Atualmente sou estagiário de tecnologia na Empresa Fortes Tecnologia.
+- 💻 Atualmente sou Desenvolvedor Trainee na Empresa Fortes Tecnologia.
 - 🤖 Fascinado por inovação e sempre aperfeiçoando meus conhecimentos.
 - 🐺 Eu não tenho nenhum talento especial. Apenas sou apaixonadamente curioso (:
 ##
